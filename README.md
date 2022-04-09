@@ -1,0 +1,3 @@
+-🌼 Hola, soy @Yam-Sama
+-✨ Amo a las tortugas y el color morado!𓆉︎💜
+-🌳 Tengo 15 años y soy más chilena que el mismo Chile!🇨🇱
